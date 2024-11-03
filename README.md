@@ -6,7 +6,7 @@ Greetings Citizens of the world!
       For more information, you can reach me out from the following socials:
 
       Instagram: brotheralameen1
-      Telegram: brotheralameen1
+      Telegram: CrimeHunterDiv
       TikTok: brotheralameen
       Twitter: brotheralameen
       VK: brotheralameen
